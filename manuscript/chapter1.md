@@ -1,4 +1,5 @@
 # London Gatwick 
+
 ## 4 May 2015: 
 
 5am alarm goes off.  Time to catch my flight.  Grab a couple of bottles of scotch for my guide in Marrakech. Easyjet is not the friendliest of airlines, but the flight is only 3 hours.   Halfway through there’s one man dressed in traditional Arab clothing.   The flight attendant tells him to put his phone in airplane mode, about 1.5 hours into the flight. He’s clearly traveling with 3 other people.  Three on the other side of the aisle in my row the 4th is on my side of the aisle.  5 minutes later two of the men get up and walk to the front of the plane, one gets in the bathroom and the other, he waits by the door.  The man in traditional Arab clothing raises the armrests and turns 15 degrees to the left and starts bowing.  Obviously praying towards Mecca.  The remaining person starts up a conversation with me about the trip, was it my first time to Morocco etc.  Then I finally realize what has been happening.  The 4 are friends traveling for a vacation.  One is far more religious than the others and wanted to pray, the Salat apps only work with GPS turned on (so it can tell you which direction to face).  The two others used the bathroom so he had room to pray.  It was then I realized that it was time to forget anything the American media has told you about the Muslim faith and the Arab world.
@@ -13,3 +14,11 @@ Moroccan tea is great, I’m later told it’s basically just cheap green tea po
 
 The manager suggests I go to the main square (Jemaa el-Fnaa),  he’s going to walk me to it.   He shows me the series of turns to get me to a road, and “Welcome to Africa Square”.  We walk down the road through “Fish Square” and then I’m instructed to turn at this particular intersection.  It is almost doubling back on myself and I was afraid I would forget which one it was.  Then I saw this sign that said “Cyber Internet” which is somehow 40 years old.  I know that is a noticeable landmark and commit it to memory.  I then walk down that street through “Wall Market” and “Chicken square”, to reach the berber market.  I continue straight and finally reach the main square. The main square is largely anticlimactic.  The entire route from the hotel has been lined with vendors, its early in the day, so half of them are still shuttered, or just setting up.    But it’s still largely overwhelming.   There's voices calling out to you almost constantly.  
 
+
+# Chapter Title
+
+It was the best of chapters, it was the worst of chapters.
+
+## Section Title
+
+I'm a lowly section.
