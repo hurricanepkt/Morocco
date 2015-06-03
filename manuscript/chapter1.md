@@ -14,11 +14,3 @@ Moroccan tea is great, I’m later told it’s basically just cheap green tea po
 
 The manager suggests I go to the main square (Jemaa el-Fnaa),  he’s going to walk me to it.   He shows me the series of turns to get me to a road, and “Welcome to Africa Square”.  We walk down the road through “Fish Square” and then I’m instructed to turn at this particular intersection.  It is almost doubling back on myself and I was afraid I would forget which one it was.  Then I saw this sign that said “Cyber Internet” which is somehow 40 years old.  I know that is a noticeable landmark and commit it to memory.  I then walk down that street through “Wall Market” and “Chicken square”, to reach the berber market.  I continue straight and finally reach the main square. The main square is largely anticlimactic.  The entire route from the hotel has been lined with vendors, its early in the day, so half of them are still shuttered, or just setting up.    But it’s still largely overwhelming.   There's voices calling out to you almost constantly.  
 
-
-# Chapter Title
-
-It was the best of chapters, it was the worst of chapters.
-
-## Section Title
-
-I'm a lowly section.
