@@ -1,5 +1,5 @@
-# Chapter 1 
-London Gatwick 4 May 2015:
+# London Gatwick 
+## 4 May 2015: ##
 
 5am alarm goes off.  Time to catch my flight.  Grab a couple of bottles of scotch for my guide in Marrakech.   Easyjet is not the friendliest of airlines, but the flight is only 3 hours.   Halfway through there’s one man dressed in traditional Arab clothing.   The flight attendant tells him to put his phone in airplane mode, about 1.5 hours into the flight. He’s clearly traveling with 3 other people.  Three on the other side of the aisle in my row the 4th is on my side of the aisle.  5 minutes later two of the men get up and walk to the front of the plane, one gets in the bathroom and the other, he waits by the door.  The man in traditional Arab clothing raises the armrests and turns 15 degrees to the left and starts bowing.  Obviously praying towards Mecca.  The remaining person starts up a conversation with me about the trip, was it my first time to Morocco etc.  Then I finally realize what has been happening.  The 4 are friends traveling for a vacation.  One is far more religious than the others and wanted to pray, the Salat apps only work with GPS turned on (so it can tell you which direction to face).  The two others used the bathroom so he had room to pray.  It was then I realized that it was time to forget anything the American media has told you about the Muslim faith and the Arab world.
 
