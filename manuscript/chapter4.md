@@ -29,6 +29,6 @@ My tour guide was a wonderful woman.  She had a dry wit about her and was proud 
 
 Back home for a rest after then out for dinner.   I was less overwhelmed by the neighborhood so I went for a sunset dinner.   The seafood place nearby did a fried everything dinner with moroccan salads.  I did not know what to order my waiter just guided me there.  After the salads arrive I tried to order water again.  I started with Eaux, then what drew stares, I tried 'sidi ali'  to which he responded 'coke'  and wandered off, well a coke is what I received.  I ate my meal and was charged exactly what I thought I would be,  a rarity for the trip.   A little overfull from fried seafood I went for a stroll along the seafront.   Friday night is apparently date night, with all sorts of young couples walking hand in hand and sitting along the seawall.  The girls dressed in outfits that ranged from something that would be at home in the midwest, to full head coverings and modest clothes.  The boys almost all were dressed like soccer players, with fancy haircuts and jerseys.  Happy with the hands in which the country was going to be in in the future,  I decide to walk back to the apartment and rest.   I watch some Looney Tunes in Arabic and drift off to sleep. 
 		
-## 9 May 2015
+# 9 May 2015
 	
 The trip to the airport was uneventful,  a taxi to a train and off at the airport without any surprises.  Off to Heathrow and off of this continent.  I'm certain it won't be my last trip to her.
